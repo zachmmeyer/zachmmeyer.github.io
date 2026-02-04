@@ -29,7 +29,7 @@ For me at least what I've done is make up for the lack of real deep relationship
 
 ### The Eternal Noise
 
-All of the content, videos, podcasts, music, everything that you can blast into your eyes and ears, it takes a massive toll on my brain. When I turn the fans off in my room and sit in silence, the noise is *outstandingly comforting*. The problem is my grey matter is hardwired to be stimulated from the moment I wake up until the moment I pass out from exhaustion.
+All of the content, videos, podcasts, music, everything that you can blast into your eyes and ears, it takes a massive toll on my brain. When I turn the fans off in my room and sit in silence, the lack of noise is *outstandingly comforting*. The problem is my grey matter is hardwired to be stimulated from the moment I wake up until the moment I pass out from exhaustion.
 
 ### The Backlog
 
